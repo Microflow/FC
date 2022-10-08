@@ -6,15 +6,17 @@ In the 190s, John F Kennedy, set a diffiult goal. He said we should travel to th
 
 In 2022, is there a planetary goal? I see nothing. 
 
-For me, visualizing and building villages, towns and citi4es of the future is a worthy and exciting goal. 
+For me, visualizing and building villages, towns and cities of the future is a worthy and exciting goal. 
 
-This is not an empty dream. In summer 2022, I went to two festivals, in Hualien province, Taiwan. There were 2 to 3 thousand people there. They had electicity, water, food, music...
+This is not an empty dream. In summer 2022, I went to two music festivals, in Hualien province, Taiwan. There were 2 to 3 thousand people there. They had electicity, water, food, music...
 
 The fact is. In 2022, we have many new and exciting equipment which could help us build better cities. 
 
 I will talk about advanced building materials, new water technology, food preservation, farming.
 
-To build a city you need multiple skill sets. 
+To build a city you need multiple skill sets. it is a which take extroverts, introverts, marketers, researchers. 
+
+What is my job? I ejoy researching adn setting a braod overview. I also like prototyping. I have many deficiencies. 
 
 We could vizualize these skills sets.
 
