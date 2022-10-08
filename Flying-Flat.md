@@ -6,6 +6,10 @@ Is it possible to drop the desires of the outer world, and keep only a few desir
 
 Do we need to spend a lot of money at music school to become excellent? Looking at the data, some of the musivcal greats went to college, others are self-taught. 
 
+30 usd to Infinity?  can this give me infinite, joy and mystery... meet new people, travel to new places.
+
+portable instument..
+
 Here is a list of surpeme musicians whos instrument costs less than 30 dollars. 
 
 Tom Walbank
