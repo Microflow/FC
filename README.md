@@ -19,3 +19,15 @@ To build a city you need multiple skill sets.
 We could vizualize these skills sets.
 
 If we cannot build these cities yet, we shoul at least let ourselves dream. Because every enterprise starts from a simple dream. 
+
+How can you start an village of the future, when you only have 1000TWD 
+
+Well, you can spend a year acquitring the skill sets. A village of the future, starts from the apartment of the future. Im learning to purify water, how to preserve food, how to make fires. 
+
+Look at cool pics. Tell stories. 
+
+If one person can so it, anyone can. 
+
+NPrize, citybuilding.,
+
+Brownfield. 
