@@ -31,3 +31,15 @@ If one person can so it, anyone can.
 NPrize, citybuilding.,
 
 Brownfield. 
+
+Only hour per week.
+
+the Partment of the Future. 
+
+We call this the rat race. 
+
+In England, we can take a step back from teh rat race. 
+
+I am not selling a vision 
+
+Just listing equipment which could pragmatically help us relax. 
