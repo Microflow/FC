@@ -38,8 +38,8 @@ the Partment of the Future.
 
 We call this the rat race. 
 
-In England, we can take a step back from teh rat race. 
+In England, we can take a step back from the rat race. 
 
-I am not selling a vision 
+I am not advocating a world without money. Just a word where we can provide more of our physical basics directly. It is already happening. I will show you the euqipemtn. Show the 5 star equipment, and also how you can build lower budget versions. 
 
 Just listing equipment which could pragmatically help us relax. 
