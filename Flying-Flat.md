@@ -1,16 +1,16 @@
 # The Lying Flat Phenomenon is interesting, because...
 
-Let us consider the world of music, programming, and exercise first.
+111 Let us consider the world of music, programming, and exercise first.
 
-Is it possible to drop the desires of the outer world, and keep only a few desires from the inner world? 
+222 Is it possible to drop the desires of the outer world, and keep only a few desires from the inner world? 
 
-Do we need to spend a lot of money at music school to become excellent? Looking at the data, some of the musivcal greats went to college, others are self-taught. 
+333 Do we need to spend a lot of money at music school to become excellent? Looking at the data, some of the musivcal greats went to college, others are self-taught. 
 
-30 usd to Infinity?  can this give me infinite, joy and mystery... meet new people, travel to new places.
+444 30 usd to Infinity?  can this give me infinite, joy and mystery... meet new people, travel to new places.
 
-portable instument..
+555 portable instument..
 
-Here is a list of surpeme musicians whos instrument costs less than 30 dollars. 
+666 Here is a list of surpeme musicians whos instrument costs less than 30 dollars. 
 
 Tom Walbank
 Tony Williams
@@ -18,23 +18,21 @@ Gordo
 Jake Shimabukro
 Shovel Guitar
 
-What are the financial benefits of playing music?
+777 What are the financial benefits of playing music?
 
-Pro musicians
+888 Pro musicians
 
-Playing on the street will met you meet many friends.
+999 Playing on the street will met you meet many friends.
 
-Is busking illegal?
+AAA Is busking illegal?
 
-Teach beginners
+BBB Teach beginners
 
-Showing a little harmonica skill may help you enter a university, or competitive job interview. 
+CCC Showing a little harmonica skill may help you enter a university, or competitive job interview. 
 
+DDD Maybe.
 
-
-Maybe.
-
-But
+EEE But
 
 
 
