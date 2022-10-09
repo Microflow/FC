@@ -2,46 +2,50 @@
 
 ## City Building. 
 
-In the 190s, John F Kennedy, set a diffiult goal. He said we should travel to the moon. The vision inspired engineers around the world. 
+111 In the 190s, John F Kennedy, set a diffiult goal. He said we should travel to the moon. His vision inspired engineers around the world. 
 
-In 2022, is there a planetary goal? I see nothing. 
+222 In 2022, is there a planetary goal? Is everyone cooperating towards a shared dream/target/vision. I see nothing. 
 
-For me, visualizing and building villages, towns and cities of the future is a worthy and exciting goal. 
+333 Can we build villages and cities better than the current ones? 
 
-This is not an empty dream. In summer 2022, I went to two music festivals, in Hualien province, Taiwan. There were 2 to 3 thousand people there. They had electicity, water, food, music...
+444 For me, visualizing and building villages, towns and cities of the future is a worthy and exciting goal. 
 
-The fact is. In 2022, we have many new and exciting equipment which could help us build better cities. 
+555 This is not an empty dream. In summer 2022, I went to two music festivals, in Hualien province, Taiwan. There were 2 to 3 thousand people there. They had electicity, water, food, music...
 
-I will talk about advanced building materials, new water technology, food preservation, farming.
+666 The fact is. In 2022, we have many new and exciting equipment which could help us build better cities. 
 
-To build a city you need multiple skill sets. it is a which take extroverts, introverts, marketers, researchers. 
+## Advanced Technology
 
-What is my job? I ejoy researching adn setting a braod overview. I also like prototyping. I have many deficiencies. 
+777 I will talk about advanced building materials, new water technology, food preservation, farming.
 
-We could vizualize these skills sets.
+888 To build a city you need multiple skill sets. it is a which take extroverts, introverts, marketers, researchers. 
 
-If we cannot build these cities yet, we shoul at least let ourselves dream. Because every enterprise starts from a simple dream. 
+999 What is my job? I ejoy researching, and setting a broad overview. I also like prototyping.  
 
-How can you start an village of the future, when you only have 1000TWD?
+AAA We could vizualize these skills sets.
 
-Well, you can spend a year acquitring the skill sets. Skills are move valuable than money. A village of the future, starts from the apartment of the future. Im learning to purify water, how to preserve food, how to make fires. 
+BBB If we cannot build these cities yet, we shoul at least let ourselves dream. Because every enterprise starts from a simple dream. 
 
-Look at cool pics. Tell stories. 
+CCC How can you start an village of the future, when you only have 1000TWD?
 
-If one person can so it, anyone can. 
+DDD Well, you can spend a year acquitring the skill sets. Skills are move valuable than money. A village of the future, starts from the apartment of the future. Im learning to purify water, how to preserve food, how to make fires. 
 
-NPrize, citybuilding.,
+EEE Look at cool pics. Tell stories. 
 
-Brownfield. 
+FFF If one person can so it, anyone can. 
 
-Only hour per week.
+GGG NPrize, citybuilding.
 
-the Partment of the Future. 
+HHH Brownfield. 
 
-We call this the rat race. 
+III Only hour per week.
 
-In England, we can take a step back from the rat race. 
+JJJ The Partment of the Future. 
 
-I am not advocating a world without money. Just a word where we can provide more of our physical basics directly. It is already happening. I will show you the euqipemtn. Show the 5 star equipment, and also how you can build lower budget versions. 
+KKK We call this the rat race. 
 
-Just listing equipment which could pragmatically help us relax. 
+LLL In England, we can take a step back from the rat race. 
+
+MMM I am not advocating a world without money. Just a word where we can provide more of our physical basics directly. It is already happening. I will show you the euqipemtn. Show the 5 star equipment, and also how you can build lower budget versions. 
+
+NNN Just listing equipment which could pragmatically help us relax. 
