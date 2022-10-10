@@ -8,9 +8,11 @@
 
 222AAA In fact, there is incredible innovation online. But it is not in the mainstream media. 
 
-222BBB Let's look at our living conditions. The pollution, the low quality food and water, the grey concrete everywhere.
+222BBB Let's look at our living conditions: The pollution, the low quality food and water, the grey concrete everywhere.
 
 333 Can we build villages and cities better than the current ones? 
+
+333BBB Let's look at the world's of science fiction and fanstasy books. Can we steal ideas from there?
 
 333AAA Over the last two thousand years, engineers have acheived many goals. 
 
