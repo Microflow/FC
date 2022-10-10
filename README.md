@@ -1,9 +1,15 @@
 # NPrize-Mandarin
 
 BRAINNSTORM: everything: Ideal, medium, shoestring.
-Eight sections: Waste, food, entertainment, NPrize, Open Source Software, Crypto and currency/ Bimetallic. What is currency? Stepping away from the rat race. LITTLE WHITE BOOK. Make is beautiful.
+Eight sections: Waste, food, entertainment, energy, NPrize, Open Source Software, Crypto and currency/ Bimetallic. What is currency? Stepping away from the rat race. LITTLE WHITE BOOK. Make it beautiful.
 
 Onepage at first. 3 languages. On wood? Etched with laser on wood? Make them collectors items. 
+
+FIRST: shovel guitar, one page print out. Nrpize on github. 5 min speech (help me correct)
+
+youtube clips can string together? one versoin of fil was naratorless.
+
+Strive for 5 things. water sovereignty, food,
 
 PAID: Meditation lead mp3.
 
