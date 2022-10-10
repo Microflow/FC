@@ -2,11 +2,19 @@
 
 ## City Building. 
 
-111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should travel to the moon. His vision inspired engineers around the world. 
+111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
 
-222 In 2022, is there a planetary goal? Is everyone cooperating towards a shared dream/target/vision. I see nothing. 
+222 Now look at the year 2022. Do we have a planetary goal? Is everyone cooperating towards a shared dream/target/vision? I see nothing. 
+
+222AAA In fact, there is incredible innovation online. But it is not in the mainstream media. 
+
+222BBB Let's look at our living conditions. The pollution, the low quality food and water, the grey concrete everywhere.
 
 333 Can we build villages and cities better than the current ones? 
+
+333AAA Over the last two thousand years, engineers have acheived many goals. 
+
+333BBB Now I want to look at the next wave of successes.
 
 444 For me, visualizing and building villages, towns and cities of the future is a worthy and exciting goal. 
 
