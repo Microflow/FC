@@ -1,5 +1,12 @@
 # NPrize-Mandarin
 
+BRAINNSTORM: everything: Ideal, medium, shoestring.
+Eight sections: Waste, food, entertainment, NPrize, Open Source Software, Crypto and currency/ Bimetallic. What is currency? Stepping away from the rat race. LITTLE WHITE BOOK. Make is beautiful.
+
+Onepage at first. 3 languages. On wood? Etched with laser on wood? Make them collectors items. 
+
+PAID: Meditation lead mp3.
+
 ## City Building. 
 
 111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
