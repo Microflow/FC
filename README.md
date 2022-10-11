@@ -64,9 +64,37 @@
 
 888 Bāguà gòngyǒu bā gè bùfèn. Suǒyǐ wǒ jiāng fēn bā zhāng jiǎng.
 
++
+
 999 A city starts from a living room, or an apartment. 
+
 999 一座城市從客廳或公寓開始。
+
 999 Yīzuò chéngshì cóng kètīng huò gōngyù kāishǐ.
+
++
+
+Here is someone who built a school from plastic bottles. 
+
+Here is another way to use plastic. 
+
+This device can get water from the air, it only costs 25USD to build. 
+
+Warka towers can build water from air. 
+
+Vertical farms provide apartment food. 
+
+This man built a hobbit home for 3,000USD.
+
+Fire: Heat
+Water: To drink.
+Earth: Home.
+Heaven: Communication.
+Lake: Rest. 
+Mountain: Mystery. 
+Storm: Electricity. 
+Wind: Software.
+
 
 
 
