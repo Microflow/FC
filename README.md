@@ -124,7 +124,7 @@ I have shown many inventions today. Maybe too many.
 
 Each person has specific goals to solve. 
 
-Maybe you ill be drawn to lighting. Other people are  interested in farming. Others in buiding homes. 
+Maybe you will be drawn to lighting. Other people are  interested in farming. Others in buiding homes. 
 
 
 With this quick presentation, I wish to make a point. 
@@ -141,6 +141,21 @@ Innovation Sustainable Invention DIY
 If youy use these four keywords, and add them to 
 
 you will probably find may amazing results. 
+
+
+This book is open source. I realize that a solution that works in Canada, will not work in Taiwan. An idea that can work in Saudi Arabia, will not work in Russia.
+
+So what did I do?
+
+I made this book open source. That means there is no copyright, and you can opy and change this book with one mouse click. 
+
+If you want to delete a section, you can. 
+
+If you want to edit a sentence, you can do it. 
+
+If you change this book, you will end up with something which is specific to your goals, your resources, and your local community.
+
+In six months, its pssible there will be more than 10 different versions of this bbok. 
 
 
 How to get funding?
