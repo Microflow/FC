@@ -118,7 +118,32 @@ This man built a hobbit home for 3,000USD.
 
 
 
+I have shown many inventions today. Maybe too many. 
 
+
+
+Each person has specific goals to solve. 
+
+Maybe you ill be drawn to lighting. Other people are  interested in farming. Others in buiding homes. 
+
+
+With this quick presentation, I wish to make a point. 
+
+There is incredible innovation on the internet, f you look hard. 
+
+
+The key words for using the Englis interneat are:
+
+Innovation Sustainable Invention DIY
+
+.
+
+If youy use these four keywords, and add them to 
+
+you will probably find may amazing results. 
+
+
+How to get funding?
 
 
 
