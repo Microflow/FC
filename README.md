@@ -64,7 +64,9 @@
 
 888 Bāguà gòngyǒu bā gè bùfèn. Suǒyǐ wǒ jiāng fēn bā zhāng jiǎng.
 
-
+999 A city starts from a living room, or an apartment. 
+999 一座城市從客廳或公寓開始。
+999 Yīzuò chéngshì cóng kètīng huò gōngyù kāishǐ.
 
 
 
