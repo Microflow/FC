@@ -3,27 +3,80 @@
 ## City Building. 
 
 111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
-
 111 在 1960 年代，約翰·F·肯尼迪設定了一個艱難的目標。他說我們應該去月球旅行。他的遠見啟發了世界各地的工程師。
-
 111`` Zài 1960 niándài, yuēhàn·F·kěnnídí shèdìngle yīgè jiānnán de mùbiāo. Tā shuō wǒmen yīnggāi qù yuèqiú lǚxíng. Tā de yuǎnjiàn qǐfāle shìjiè gèdì de gōngchéngshī.
 
 
 
 222 Now look at the year 2022. Do we have a planetary goal? Is everyone cooperating towards a shared dream/target/vision? I see nothing. 
-
 222 2022 年有沒有行星目標？是否每個人都在為共同的夢想/目標/願景而合作。我什麼也沒看見。
-
 222 2022 Nián yǒu méiyǒu xíngxīng mùbiāo? Shìfǒu měi gèrén dōu zài wèi gòngtóng de mèngxiǎng/mùbiāo/yuànjǐng ér hézuò. Wǒ shénme yě méi kànjiàn.
 
 
 
 
 333 Can we build villages and cities better than the current ones? 
-
 333 能不能把村鎮建設得比現在好？
-
 333 Néng bùnéng bǎ cūnzhèn jiànshè dé bǐ xiànzài hǎo?
+
+
+444 For me, visualizing and building villages, towns and cities of the future is a worthy and exciting goal. 
+444 對我來說，設想和建設未來的村莊、城鎮和城市是一個值得和令人興奮的目標。
+444 Duì wǒ lái shuō, shèxiǎng hé jiànshè wèilái de cūnzhuāng, chéngzhèn hé chéngshì shì yīgè zhídé hé lìng rén xīngfèn de mùbiāo.
+
+
+
+555 This is not an empty dream. In summer 2022, I went to two music festivals, in Hualien province, Taiwan. There were 2 to 3 thousand people there. They had electicity, water, food, music...
+555 這不是空想。 2022年夏天，我去了台灣花蓮省的兩個音樂節。那裡有2到3千人。他們有電、水、食物、音樂……
+555 Zhè bùshì kōngxiǎng. 2022 Nián xiàtiān, wǒ qùle táiwān huālián shěng de liǎng gè yīnyuè jié. Nàlǐ yǒu 2 dào 3 qiān rén. Tāmen yǒu diàn, shuǐ, shíwù, yīnyuè……
+
+
+666 The fact is. In 2022, we have many new and exciting equipment which could help us build better cities. 
+666 事實就是這樣。 2022 年，我們有許多令人興奮的新設備，可以幫助我們建設更好的城市。
+666 shìshí jiùshì zhèyàng. 2022 Nián, wǒmen yǒu xǔduō lìng rén xīngfèn de xīn shèbèi, kěyǐ bāngzhù wǒmen jiànshè gèng hǎo de chéngshì.
+
+
+
+777 We can think more clearly about this concept. If we divide our thinking into eight sections.  
+777 我們可以更清楚地思考這個概念。如果我們把我們的思想分成八個部分。
+777 Wǒmen kěyǐ gèng qīngchǔ dì sīkǎo zhège gàiniàn. Rúguǒ wǒmen bǎ wǒmen de sīxiǎng fēnchéng bā gè bùfèn.
+
+
+
+888 The Bagua has eight sections. So i will talk in eight chapters. 
+888 八卦共有八個部分。所以我將分八章講。
+888 Bāguà gòngyǒu bā gè bùfèn. Suǒyǐ wǒ jiāng fēn bā zhāng jiǎng.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
