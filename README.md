@@ -17,13 +17,30 @@ PAID: Meditation lead mp3.
 
 111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
 
+111 在 1960 年代，約翰·F·肯尼迪設定了一個艱難的目標。他說我們應該去月球旅行。他的遠見啟發了世界各地的工程師。
+
+111`` Zài 1960 niándài, yuēhàn·F·kěnnídí shèdìngle yīgè jiānnán de mùbiāo. Tā shuō wǒmen yīnggāi qù yuèqiú lǚxíng. Tā de yuǎnjiàn qǐfāle shìjiè gèdì de gōngchéngshī.
+
+
+
 222 Now look at the year 2022. Do we have a planetary goal? Is everyone cooperating towards a shared dream/target/vision? I see nothing. 
 
-222AAA In fact, there is incredible innovation online. But it is not in the mainstream media. 
+222 2022 年有沒有行星目標？是否每個人都在為共同的夢想/目標/願景而合作。我什麼也沒看見。
 
-222BBB Let's look at our living conditions: The pollution, the low quality food and water, the grey concrete everywhere.
+222 2022 Nián yǒu méiyǒu xíngxīng mùbiāo? Shìfǒu měi gèrén dōu zài wèi gòngtóng de mèngxiǎng/mùbiāo/yuànjǐng ér hézuò. Wǒ shénme yě méi kànjiàn.
+
+
+
 
 333 Can we build villages and cities better than the current ones? 
+
+333 能不能把村鎮建設得比現在好？
+
+333 Néng bùnéng bǎ cūnzhèn jiànshè dé bǐ xiànzài hǎo?
+
+
+
+
 
 333BBB Let's look at the world's of science fiction and fanstasy books. Can we steal ideas from there?
 
@@ -82,8 +99,6 @@ NNN Just listing equipment which could pragmatically help us relax.
 ##城市建設。
 
 111 在 1960 年代，約翰·F·肯尼迪設定了一個艱難的目標。他說我們應該去月球旅行。他的遠見啟發了世界各地的工程師。
-
-222 2022 年有沒有行星目標？是否每個人都在為共同的夢想/目標/願景而合作。我什麼也沒看見。
 
 333 能不能把村鎮建設得比現在好？
 
