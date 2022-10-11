@@ -1,18 +1,5 @@
 # NPrize-Mandarin
 
-BRAINNSTORM: everything: Ideal, medium, shoestring.
-Eight sections: Waste, food, entertainment, energy, NPrize, Open Source Software, Crypto and currency/ Bimetallic. What is currency? Stepping away from the rat race. LITTLE WHITE BOOK. Make it beautiful.
-
-Onepage at first. 3 languages. On wood? Etched with laser on wood? Make them collectors items. 
-
-FIRST: shovel guitar, one page print out. Nrpize on github. 5 min speech (help me correct)
-
-youtube clips can string together? one versoin of fil was naratorless.
-
-Strive for 5 things. water sovereignty, food,
-
-PAID: Meditation lead mp3.
-
 ## City Building. 
 
 111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
@@ -202,3 +189,18 @@ LLL zài yīnggélán, wǒmen kěyǐ cóng jīliè de jìngzhēng zhōngtuì hò
 Ń, wǒ bùshì zài tíchàng yīgè méiyǒu qián de shìjiè. Zhǐshì yīgè cí, wǒmen kěyǐ zhíjiē tígōng gèng duō de wùlǐ jīchǔ zhīshì. Tā yǐjīng zài fāshēngle. Wǒ huì gàosù nǐ euqipemtn. Zhǎnshì 5 xīng jí shèbèi, yǐjí rúhé gòujiàn dī yùsuàn bǎnběn.
 
 NNN zhǐshì liè chū kěyǐ qièshí bāngzhù wǒmen fàngsōng de shèbèi.
+
+
+
+BRAINNSTORM: everything: Ideal, medium, shoestring.
+Eight sections: Waste, food, entertainment, energy, NPrize, Open Source Software, Crypto and currency/ Bimetallic. What is currency? Stepping away from the rat race. LITTLE WHITE BOOK. Make it beautiful.
+
+Onepage at first. 3 languages. On wood? Etched with laser on wood? Make them collectors items. 
+
+FIRST: shovel guitar, one page print out. Nrpize on github. 5 min speech (help me correct)
+
+youtube clips can string together? one versoin of fil was naratorless.
+
+Strive for 5 things. water sovereignty, food,
+
+PAID: Meditation lead mp3.
