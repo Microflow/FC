@@ -73,6 +73,35 @@
 999 Yīzuò chéngshì cóng kètīng huò gōngyù kāishǐ.
 
 +
+AAA 
+
+Fire: Heating and Cooling. 
+Water: Drink.
+Earth: Home.
+Heaven: Communication.
+Lake: Rest. 
+Mountain: Mystery. 
+Storm: Electricity. 
+Wind: Software.
+
+Huǒ: Jiārè huo lěngquè.
+Shuǐ: Hē.
+Dìqiú: Jiā.
+Tiāntáng: Gōutōng.
+Hú: Xiūxí.
+Shān: Shénmì.
+Fēngbào: Diànlì.
+Fēng: Ruǎnjiàn.
+
+火：加熱和冷卻。
+水：喝。
+地球：家。
+天堂：溝通。
+湖：休息。
+山：神秘。
+風暴：電力。
+風：軟件。
+
 
 Here is someone who built a school from plastic bottles. 
 
@@ -85,17 +114,6 @@ Warka towers can build water from air.
 Vertical farms provide apartment food. 
 
 This man built a hobbit home for 3,000USD.
-
-Fire: Heat
-Water: To drink.
-Earth: Home.
-Heaven: Communication.
-Lake: Rest. 
-Mountain: Mystery. 
-Storm: Electricity. 
-Wind: Software.
-
-
 
 
 
