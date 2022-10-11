@@ -147,18 +147,40 @@ This book is open source. I realize that a solution that works in Canada, will n
 
 So what did I do?
 
-I made this book open source. That means there is no copyright, and you can opy and change this book with one mouse click. 
+I made this book open source. That means there is no copyright, and you can copy and change this book with one mouse click. 
 
-If you want to delete a section, you can. 
-
-If you want to edit a sentence, you can do it. 
+If you want to delete a section, you can. If you want to edit a sentence, you can do it. If you want to add something, you can do that too. 
 
 If you change this book, you will end up with something which is specific to your goals, your resources, and your local community.
 
-In six months, its pssible there will be more than 10 different versions of this bbok. 
+In six months, its pssible there will be more than 10 different versions of this book. 
 
 
 How to get funding?
+
+It is a commonly held belieif, that we want to make change, but there is not enough money avaiable.
+
+Actually the opposite is true.
+
+There are many individuals who have money to donate, but there are not enough credible projects. 
+
+
+In order to raise money, you need. 
+
+- A clear mission statement. 
+- An exciting prototype. 
+- A clear funding path. 
+
+We were never taught how to raise money in school, so we have to learn the art ourselves. 
+
+
+What each individual has to decide, is... what role do I want to play? All of us have a soul mission,and I think all of us have forgotten our mission. 
+
+Ket's look at engineering triumphs of the past. 
+
+The first, is you do not need a lot of people to start an exciting project. One to three people is enough. 
+
+When 
 
 
 
