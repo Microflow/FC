@@ -1,6 +1,10 @@
 # NPrize-Mandarin
 
-## City Building. 
+## Latest Draft Here
+
+https://docs.google.com/document/d/1Gl8C6tN9zsYSWG5y_5TBkcrLiGvSjjgd5ppx0G2TYZk/edit
+
+### City Building. 
 
 111 In the 1960s, John F Kennedy, set a diffiult goal. He said we should go to the moon. His vision inspired engineers around the world. 
 
@@ -115,22 +119,22 @@ Vertical farms provide apartment food.
 
 This man built a hobbit home for 3,000USD.
 
-
-
-
 I have shown many inventions today. Maybe too many. 
 
 
 
-Each person has specific goals to solve. 
+Each person has specific goals to solve. So I don't know exactly what each person whould do.
 
-Maybe you will be drawn to lighting. Other people are  interested in farming. Others in buiding homes. 
+Maybe you will be drawn to provide lighting for vilalges. Other people are interested in city-farming. Others in buiding sustainable homes. 
 
 
-With this quick presentation, I wish to make a point. 
+## Hidden Innovation
 
-There is incredible innovation on the internet, f you look hard. 
+With this quick presentation, I wish to make one point. 
 
+There is incredible innovation on the internet, if you look hard. 
+
+The news is not talking about this innovation. 
 
 The key words for using the Englis interneat are:
 
