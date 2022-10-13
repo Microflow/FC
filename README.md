@@ -1,8 +1,11 @@
-# NPrize-Mandarin
+# Future Cities 未來城市 Wèilái chéngshì
 
-## Latest Draft Here
+## Latest Version Here 最新版本在這裡 Zuìxīn bǎnběn zài zhèlǐ
 
-https://docs.google.com/document/d/1Gl8C6tN9zsYSWG5y_5TBkcrLiGvSjjgd5ppx0G2TYZk/edit
+https://docs.google.com/document/d/1xc4hX8gvNxURp6S-pQWUlvQxPiw-Pq_g2uKuGcFJdrU/edit?usp=sharing
+
+
+## Old Version
 
 ### City Building. 
 
