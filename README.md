@@ -1,7 +1,6 @@
 # FUTURE CITIES 未來城市 Wèilái chéngshì
 
-## [Latest Version Here 最新版本在這裡 Zuìxīn bǎnběn zài zhèlǐ](
-https://docs.google.com/document/d/16mWPlWKfCu5Y6JR0HK4QW1GX5JxfxB0eTju9CDMuQJQ/edit#)
+## [Latest Version Here 最新版本在這裡 Zuìxīn bǎnběn zài zhèlǐ](https://docs.google.com/document/d/16mWPlWKfCu5Y6JR0HK4QW1GX5JxfxB0eTju9CDMuQJQ/edit#)
 
 ## [Two Page Questions](https://docs.google.com/document/d/11wYTR3GoeFAGJBGmmgAaroCdHy-TdEY4heVg_J4CZfs/edit)
 
